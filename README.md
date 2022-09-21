@@ -10,3 +10,7 @@ JENIFER ASSIGNMENT 1
 # IBM ASSIGNMENT 
 JANANI ASSIGNMENT !
 [Tinker Cad Link]https://www.tinkercad.com/things/kjyinF6WpgV
+# IBM ASSIGNMENT
+PAVITHRA ASSIGNMENT 1
+[Tinker Cad Link]https://www.tinkercad.com/things/gZfjgXmDiIw
+
