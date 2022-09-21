@@ -4,3 +4,6 @@ ANANDHI ASSIGNMENT 1
 # IBM ASSIGNMENT
 SOWMIYAA ASSIGNMENT 1
 [Tincker Cad Link]https://www.tinkercad.com/things/ld9XLoUWWJO
+# IBM ASSIGNMENT
+JENIFER ASSIGNMENT 1
+[Tincker Cad Link]https://www.tinkercad.com/things/lO9brzcfdh1
