@@ -1,12 +1,12 @@
 # IBM ASSIGNMENT 
 ANANDHI ASSIGNMENT 1
-[Tincker Cad Link]https://www.tinkercad.com/things/hxervYICEaB
+[Tinker Cad Link]https://www.tinkercad.com/things/hxervYICEaB
 # IBM ASSIGNMENT
 SOWMIYAA ASSIGNMENT 1
-[Tincker Cad Link]https://www.tinkercad.com/things/ld9XLoUWWJO
+[Tinker Cad Link]https://www.tinkercad.com/things/ld9XLoUWWJO
 # IBM ASSIGNMENT
 JENIFER ASSIGNMENT 1
-[Tincker Cad Link]https://www.tinkercad.com/things/lO9brzcfdh1
+[Tinker Cad Link]https://www.tinkercad.com/things/lO9brzcfdh1
 # IBM ASSIGNMENT 
 JANANI ASSIGNMENT !
-[Tincker Cad Link]https://www.tinkercad.com/things/kjyinF6WpgV
+[Tinker Cad Link]https://www.tinkercad.com/things/kjyinF6WpgV
